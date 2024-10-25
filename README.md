@@ -28,3 +28,11 @@ o Results of the benchmark initiative are saved: APM Team\\General\\Reference do
 
 
 ![image](https://github.com/user-attachments/assets/d1f64ad5-3c87-4559-a02c-3fff48ddab2b)
+
+![image](https://github.com/user-attachments/assets/7a4726d8-d882-4e01-8c57-af9428175d09)
+
+![image](https://github.com/user-attachments/assets/11506bc2-14d1-479a-b185-7601971fe2d4)
+
+![image](https://github.com/user-attachments/assets/42a71ccb-f862-429a-96b7-6e6263db5ee4)
+
+![image](https://github.com/user-attachments/assets/0dd1ceec-cbbc-49d0-9b3f-5a0b10c04e8b)
